@@ -1,1 +1,1 @@
-# Samsung Bixby Capsule Challange Season2
+# Samsung Bixby Capsule Challange Season 2
