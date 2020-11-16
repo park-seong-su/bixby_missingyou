@@ -1,1 +1,1 @@
-# playground.mypet
+# Samsung Bixby Capsule Challange Season2
